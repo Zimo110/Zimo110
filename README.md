@@ -2,7 +2,7 @@
 - 👀 I’m interested in LEGO, parrot, painting, swimming...
 - 🌱 I’m currently learning Machine Learning, NLP, OS 
 - 💞️ I’m looking to collaborate on projects related to art or UAV
-- 📫 How to reach me：2878425658@qq.com
+- 📫 How to reach me：ZhangXY778899@outlook.com
 - 😄 Pronouns: Changing
 - ⚡ Fun fact: Has a wild imagination but poor ability. Metamorphosis...
 
